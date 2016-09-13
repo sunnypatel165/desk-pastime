@@ -10,9 +10,9 @@ Just trying to give you ideas to get rid of your boredom or for free time or tho
 * Talk to another bored/free team member - sometimes this leads to great knowledge sharing! :speech_balloon:
 * Read [hacker news] (https://news.ycombinator.com/). :newspaper:
 * Read/write blogs, inspirations.
-* Find people on various sites to follow - [Quora](https://quora.com), [github explore] (https://github.com/explore), [Medium](https://medium.com) :eyeglasses:
+* Find people on various sites to follow - [Quora](https://quora.com), [Github Explore] (https://github.com/explore), [Medium](https://medium.com) :eyeglasses:
 * Learn something new - A new tech everytime you are free works really well! [Pluralsight](https://www.pluralsight.com/) is my fav!
-* Network with people with other teams and departments.
+* Network with people from other teams and departments.
 
 
 
