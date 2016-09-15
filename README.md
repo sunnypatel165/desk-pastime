@@ -14,6 +14,7 @@ Just trying to give you ideas to get rid of your boredom or for free time or tho
 * Learn something new - [Pluralsight](https://www.pluralsight.com/) is my fav!
 * Network with people from other teams and departments.
 * Think of ideas - startups, social, fun, weekend plans and what not.
+* Online programming - [Hackerrank](https://www.hackerrank.com/sunny_patel) [Codechef](https://www.codechef.com/users/sunny_patel)
 
 
 
