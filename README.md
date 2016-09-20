@@ -19,6 +19,7 @@ Just trying to give you ideas to get rid of your boredom or for free time or tho
 * Email clean up :email: 
 * Eat :pizza: :apple: 
 * Hobbies - explore things you like apart from work! :muscle: :guitar: :swimmer: :cookie: :golf: :ski:
+* Music - [Gaana](https://gaana.com) [Spotify](https://www.spotify.com/) :musical_note:
 
 
 
